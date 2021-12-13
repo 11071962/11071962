@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @11071962
 - 👀 I’m interested in ..earbuds headphones.
-- 🌱 I’m currently learning don't have a clue
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning everything 
+- 💞️ I’m looking to collaborate on not sure where I could help I'm visually impaired 
 - 📫 How to reach me ...domv7@duck.com
 
 <!---
